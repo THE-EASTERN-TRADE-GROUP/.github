@@ -1,7 +1,5 @@
 # About Us
 
-## The Eastern Trade Group LLP
-
 ### A Helping Hand
 
 At The Eastern Trade Group LLP, we believe in innovation and, more importantly, the innovators themselves. By supporting creative minds across the globe and connecting them to a diverse network of buyers and sellers, we are making significant strides toward our mission. Our goal is to enable growth, development, and expansion, ensuring that everyone benefits from a thriving global marketplace.
